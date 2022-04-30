@@ -6,6 +6,9 @@
 
 **Fecha**:
 
+
+![Björk + Lady Gaga](https://1.bp.blogspot.com/-ytsIKtXboYY/YFPMgX5VLWI/AAAAAAAAEi4/34-SUrSWZF4RgvM637KcxVZY4cESQyCVACLcBGAsYHQ/s1080/bjork-fala-sobre-lady-gaga.jpg)
+
 ## Introducción
 La investigación realizada hace referencia a dos hibridaciones realizadas que obtuvieron un gran impacto, una fusión entre el mundo del arte y la tecnología. Los temas son la colaboración entre **Lady Gaga** e **Intel** para crear una experiencia musical sorprendente en la gala *58º Grammy Awards* y la incorporación del ***reactable*** en los conciertos en directo de **Björk**.
 
